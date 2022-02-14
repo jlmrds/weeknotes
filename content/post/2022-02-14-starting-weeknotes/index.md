@@ -51,7 +51,7 @@ I really enjoy the variety of work that I get to be involved with, and it's grea
 
 Is this a weeknote? Did anyone benefit from reading this? Did I benefit from writing it?
 
-**INSUFFICENT DATA FOR MEANINGFUL RESPONSE**
+**INSUFFICENT DATA FOR MEANINGFUL RESPONSE[.](https://www.physics.princeton.edu/ph115/LQ.pdf)**
 
 
 
